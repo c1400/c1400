@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @ mutugupeter218@gmail.com
 
- ✨ fun codinf✨
+ ✨ fun coding✨
